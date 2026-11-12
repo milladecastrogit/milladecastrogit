@@ -3,7 +3,7 @@
 🎓 **Graduanda em Ciência da Computação** (UNIFACS) e **Técnica em Desenvolvimento de Sistemas** (SENAI)  
 🏭 **+13 anos de experiência industrial** em Qualidade, Laboratório, PCP e Logística (Continental Pneus, Ford e Orbi Química)  
 🌱 **Tecnóloga em Gestão Ambiental** com experiência no **INEMA** e Geoprocessamento (**SIG**)  
-💻 Atualmente atuando como **Estagiária de Suporte de TI** no SESI Saúde (Camaçari/BA)
+💻 Atualmente atuo como **Estagiária de Suporte de TI** no SESI Saúde (Camaçari/BA)
 
 ---
 
